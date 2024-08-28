@@ -13,5 +13,5 @@ alurastartestudante@email.com
 
 @alurastartestudante
 
-![](https://github.com/user-attachments/assets/7f74058c-0668-4c6c-8b27-ccefb6164790)
+![](https://media1.tenor.com/m/vIpK_vcRqZgAAAAC/vinyl-mlp.gif)
 
