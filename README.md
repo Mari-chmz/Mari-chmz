@@ -12,3 +12,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 alurastartestudante@email.com
 
 @alurastartestudante
+![](![image](https://github.com/user-attachments/assets/2f58d1b7-4ed8-40bf-b514-680cd4988a72)
+)
