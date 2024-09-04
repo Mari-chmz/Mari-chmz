@@ -13,5 +13,5 @@ alurastartestudante@email.com
 
 @alurastartestudante
 
-![](https://media1.tenor.com/m/vIpK_vcRqZgAAAAC/vinyl-mlp.gif)
+![](https://media1.tenor.com/m/X2kTPUWoWTIAAAAC/my-little-pony-my-little-pony-friendship-is-magic.gif)
 
